@@ -1,4 +1,4 @@
-You know cryptids custom title screen?
+You know Cryptid's custom title screen?
 
 This is customizable for you! 
 
